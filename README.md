@@ -8,8 +8,8 @@
 - **เบอร์โทรศัพท์:** 0945412034
 
 ## 🌐 Social Media
-- **Facebook:** [Nontawat Onraar](https://www.facebook.com/)
-- **Instagram:** [@nzz._28](https://www.instagram.com/nzz._28/)
+- **Facebook:** [Nontawat Onraar]([https://www.facebook.com/](https://www.facebook.com/nontawatonraar/))
+- **Instagram:** [@nzz._28]([https://www.instagram.com/nzz._28/](https://www.instagram.com/nzz._28?psln=MTdreHkzNGd2MzVvNQ==))
 
 ## 🏠 ที่อยู่
 บ้านเลขที่ 49 หมู่ 3 ตำบลธวัชบุรี
